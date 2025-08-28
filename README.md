@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Game Dev
 - 🌱 I’m currently learning ... Game Dev & Full stack Web Dev
 - 💞️ I’m looking to collaborate on ... Nothing for now.
-- 📫 How to reach me ... applic.4me@gmail.com
+- 📫 How to reach me ... rapolusharvanth@gmail.com
 - 😄 Pronouns: ... CHERRY
 - ⚡ Fun fact: ... 
 
